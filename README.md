@@ -1,0 +1,1 @@
+# opatrn-oto-n-telefon
